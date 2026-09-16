@@ -1,0 +1,1 @@
+Sveiki aš Dominykas iš KT-5 grupės
